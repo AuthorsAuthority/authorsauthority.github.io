@@ -16,7 +16,7 @@ Status: Discontinued
 
 Tesan was written as a comic, few times, and it started off as comedy somehow (to be fair, it was actually funny), but slowly became darker and gore-ish. I don't really have anything to compare it to. Maybe like Tokyo Ghoul, with the gore and the forced suffering. 
 
-I literally put my two hyperfixations (volcanoes and hurricanes) into one. Unfortunately, I lost majority of hurricane and volcano content I have collected over the years. 
+I literally put my two hyperfixations (volcanoes and hurricanes) into one. In addition, if my mempry serves right, I was likely inspired by `The Creature from my Closet` series, which also fuses two characters into one. Unfortunately, I lost majority of hurricane and volcano content I have collected over the years. 
 
 Lowkey just re-read the first version and it's funny as fuck. I was right. Old me had a fantastic sense of humor. 
 
