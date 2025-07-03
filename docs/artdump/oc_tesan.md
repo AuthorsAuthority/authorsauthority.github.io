@@ -2,11 +2,15 @@
 
 ## Meta 
 
-Type: Writing <br>
-From: Huracan and Volcani <br>
-Created: 2018 <br>
-Creator: AuthorsAuthority <br>
-Status: Discontinued <br>
+Type: Writing 
+
+From: Huracan and Volcani 
+
+Created: 2018 
+
+Creator: AuthorsAuthority 
+
+Status: Discontinued 
 
 ### Meta Notes 
 

@@ -8,7 +8,5 @@ This article follows this definition unless specified.
 
 ## List of OCs 
 
-### Tesan 
-
-<a href="https://authorsauthority.github.io/docs/artdump/oc_tesan">Huracan and Volcani</a>
+<a href="https://authorsauthority.github.io/docs/artdump/oc_tesan">Tesan from Huracan and Volcani</a>
 
