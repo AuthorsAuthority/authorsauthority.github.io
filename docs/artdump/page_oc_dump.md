@@ -10,5 +10,5 @@ This article follows this definition unless specified.
 
 ### Tesan 
 
-[Huracan | Volcani](https://authorsauthority.github.io/docs/artdump/oc_tesan)
+[Huracan and Volcani](https://authorsauthority.github.io/docs/artdump/oc_tesan)
 
